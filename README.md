@@ -27,7 +27,7 @@
 
 点击访问：<a href="https://aw7-03.pages.dev/">暗网TV官网</a>
 
-点击访问：<a href="https://hl433.pages.dev/">每日分享最新黑料吃瓜资源</a>
+点击访问：<a href="https://hl433.pages.dev/">每日分享最新黑料吃瓜资源最新</a>
 
 点击访问：<a href="https://hl388.pages.dev/">黑料不打烊</a>
 
@@ -63,4 +63,4 @@ Telegram频道传送门：精选优质 Telegram 频道资源，涵盖资讯、�
 
 基于时间线系统梳理娱乐圈与网红圈重大事件，内容真实、脉络清晰，是舆情分析与热点回顾的重要参考资料。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ooo20250626/ooo4）</span>
